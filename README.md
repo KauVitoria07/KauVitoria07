@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @KauVitoria07
+- 👀 Estou interessado em João Telles
+- 🌱 Estou aprendendo como suportar João Telles
+- 💞️ Estou procurando colaborar em entender João Telles
+- 📫 Como chegar até mim pergunte a João Telles 
